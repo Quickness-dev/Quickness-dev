@@ -118,4 +118,4 @@ Quickness transforma el transporte público:
 
 Quickness no solo es una herramienta tecnológica, es un **cambio en la experiencia del transporte público**, haciendo que sea más seguro, rápido y confiable para todos.  
 
-¡[Descubre más y únete al cambio](https://www.tu-enlace.com)!  
+¡[Descubre más y únete al cambio](https://www.override.com.mx)!  
